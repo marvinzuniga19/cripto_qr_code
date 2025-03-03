@@ -1,1 +1,1 @@
-![qr_usdt](https://github.com/user-attachments/assets/b0766197-f6a7-44ec-8c82-5b8b8900e49f)
+![python_qr_code_cripto](https://github.com/user-attachments/assets/945c7873-cc13-4e24-ada6-36e5de22cfa0)
